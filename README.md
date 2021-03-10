@@ -1,1 +1,0 @@
-# Humoyunbek-1
